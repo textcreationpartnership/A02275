@@ -35,153 +35,85 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The honest and plaine dealing fa[r]rier or, A present remedy for curing diseases and hurts in horses
+
 #####Body#####
-A GOOD AND neceſſary Booke for curing diſeaſes, and hurtes in Horſes: gathered and written for the g
-    _ And firſt for diſeaſes in the head of a Horſe.
+A GOOD AND neceſſary Booke for curing diſeaſes, and hurtes in Horſes: gathered and written for the gA GOOD AND neceſſary Booke for curing diſeaſes, and hurtes in Horſes: gathered and written for the g
+      * And firſt for diſeaſes in the head of a Horſe.
 
-    _ Remedies for the ſame.
+      * Remedies for the ſame.
 
-    _ The remedies.
+      * The remedies.
 
-    _ For a Peable in a Horſe eye.
+      * For a Peable in a Horſe eye.
 
-    _ For the Lampas.
+      * For the Lampas.
 
-    _ There is a malady in a Horſe mouth that will hinder him to eate his meate.
+      * There is a malady in a Horſe mouth that will hinder him to eate his meate.
 
-    _ A malady in a Horſe belly much like the botts, I call it Tronches, ye may know the evill by theſe tokens, he will ye downe often, and offer to welter or tumble, hee will offer to gnaw and bite at his ſides; he will ſtrike ahis belly with his hinder feete, and his ſides will flacke and beate ſore, and in a ſhort time it will pierce thorow his maw, then hee ſhall bee in great danger to die, but to helpe him at the firſt.
+      * A malady in a Horſe belly much like the botts, I call it Tronches, ye may know the evill by theſe tokens, he will ye downe often, and offer to welter or tumble, hee will offer to gnaw and bite at his ſides; he will ſtrike ahis belly with his hinder feete, and his ſides will flacke and beate ſore, and in a ſhort time it will pierce thorow his maw, then hee ſhall bee in great danger to die, but to helpe him at the firſt.
 
-    _ Helpes for the ſinewes if they bee either pricked or cut aſunder.
+      * Helpes for the ſinewes if they bee either pricked or cut aſunder.
 
-    _ Another yet for the ſame, which takes away all aking of ſinewes bruſed or pricked.
+      * Another yet for the ſame, which takes away all aking of ſinewes bruſed or pricked.
 
-    _ Of the enchafing of a Horſe neck, or other place of him, which may come by heat of blood after great travell, which by rubbing againſt a wall, or a tree will cauſe ſcabs riſe in his neck, among the haire, ſometime on the ſaddle place, to helpe this.
+      * Of the enchafing of a Horſe neck, or other place of him, which may come by heat of blood after great travell, which by rubbing againſt a wall, or a tree will cauſe ſcabs riſe in his neck, among the haire, ſometime on the ſaddle place, to helpe this.
 
-    _ When an horſe halteth to know whether the harme be in the ſhoulder, knee, or in his foot, and to helpe him.
+      * When an horſe halteth to know whether the harme be in the ſhoulder, knee, or in his foot, and to helpe him.
 
-    _ For Windgales.
+      * For Windgales.
 
-    _ For the Stranglion:
+      * For the Stranglion:
 
-    _ Coſtifenes how it may be engendred and to helpe its.
+      * Coſtifenes how it may be engendred and to helpe its.
 
-    _ For to helpe the Ring-bone.
+      * For to helpe the Ring-bone.
 
-    _ For the Malanders.
+      * For the Malanders.
 
-    _ For craches, or as ſome call them ſcratches.
+      * For craches, or as ſome call them ſcratches.
 
-    _ For the Paines, and how to cure them.
+      * For the Paines, and how to cure them.
 
-    _ For a diſeaſe called chawdpiſſe which is hot piſſe a burning or ſcalding heat of his water which when he ſtaleth will be red, almoſt like blood.
+      * For a diſeaſe called chawdpiſſe which is hot piſſe a burning or ſcalding heat of his water which when he ſtaleth will be red, almoſt like blood.
 
-    _ How to heale a Curbe
+      * How to heale a Curbe
 
-    _ For the Glanders.
+      * For the Glanders.
 
-    _ For a Tanite.
+      * For a Tanite.
 
-    _ For the Botts.
+      * For the Botts.
 
-    _ For a horſe that is broken winded.
+      * For a horſe that is broken winded.
 
-    _ If a Horſe be gawled or hurt on his backe with a Saddle.
+      * If a Horſe be gawled or hurt on his backe with a Saddle.
 
-    _ A good remedy for the ſcab.
+      * A good remedy for the ſcab.
 
-    _ If a horſe be hurt or bruſed ſo as he piſſeth blood.
+      * If a horſe be hurt or bruſed ſo as he piſſeth blood.
 
-    _ For a horſe that is ſurbayte.
+      * For a horſe that is ſurbayte.
 
-    _ To take dead fleſh out of a wound or any ſore.
+      * To take dead fleſh out of a wound or any ſore.
 
-    _ For a ſplint.
+      * For a ſplint.
 
-    _ If a horſe yard or cods be hurt with a ſtroake, ſo that they ſwell.
+      * If a horſe yard or cods be hurt with a ſtroake, ſo that they ſwell.
 
-    _ To make a white place in a horſe head, or any where.
+    _ And here followes partie obſervations: firſt to make a horſe quicke on the ſpurre that is dull.
 
-    _ To cauſe a Horſe that he ſhall not ney.
+      * To make a white place in a horſe head, or any where.
 
-    _ For the yeolowes.
+      * To cauſe a Horſe that he ſhall not ney.
 
-    _ Here is alſo an excellent ſalve to cure any wound in a horſe or in a man, as Iverily ſuppoſe. et ſic fit.
+      * For the yeolowes.
 
-1. And here followes partie obſervations: firſt to make a horſe quicke on the ſpurre that is dull.
-
-    _ And firſt for diſeaſes in the head of a Horſe.
-
-    _ Remedies for the ſame.
-
-    _ The remedies.
-
-    _ For a Peable in a Horſe eye.
-
-    _ For the Lampas.
-
-    _ There is a malady in a Horſe mouth that will hinder him to eate his meate.
-
-    _ A malady in a Horſe belly much like the botts, I call it Tronches, ye may know the evill by theſe tokens, he will ye downe often, and offer to welter or tumble, hee will offer to gnaw and bite at his ſides; he will ſtrike ahis belly with his hinder feete, and his ſides will flacke and beate ſore, and in a ſhort time it will pierce thorow his maw, then hee ſhall bee in great danger to die, but to helpe him at the firſt.
-
-    _ Helpes for the ſinewes if they bee either pricked or cut aſunder.
-
-    _ Another yet for the ſame, which takes away all aking of ſinewes bruſed or pricked.
-
-    _ Of the enchafing of a Horſe neck, or other place of him, which may come by heat of blood after great travell, which by rubbing againſt a wall, or a tree will cauſe ſcabs riſe in his neck, among the haire, ſometime on the ſaddle place, to helpe this.
-
-    _ When an horſe halteth to know whether the harme be in the ſhoulder, knee, or in his foot, and to helpe him.
-
-    _ For Windgales.
-
-    _ For the Stranglion:
-
-    _ Coſtifenes how it may be engendred and to helpe its.
-
-    _ For to helpe the Ring-bone.
-
-    _ For the Malanders.
-
-    _ For craches, or as ſome call them ſcratches.
-
-    _ For the Paines, and how to cure them.
-
-    _ For a diſeaſe called chawdpiſſe which is hot piſſe a burning or ſcalding heat of his water which when he ſtaleth will be red, almoſt like blood.
-
-    _ How to heale a Curbe
-
-    _ For the Glanders.
-
-    _ For a Tanite.
-
-    _ For the Botts.
-
-    _ For a horſe that is broken winded.
-
-    _ If a Horſe be gawled or hurt on his backe with a Saddle.
-
-    _ A good remedy for the ſcab.
-
-    _ If a horſe be hurt or bruſed ſo as he piſſeth blood.
-
-    _ For a horſe that is ſurbayte.
-
-    _ To take dead fleſh out of a wound or any ſore.
-
-    _ For a ſplint.
-
-    _ If a horſe yard or cods be hurt with a ſtroake, ſo that they ſwell.
-
-    _ To make a white place in a horſe head, or any where.
-
-    _ To cauſe a Horſe that he ſhall not ney.
-
-    _ For the yeolowes.
-
-    _ Here is alſo an excellent ſalve to cure any wound in a horſe or in a man, as Iverily ſuppoſe. et ſic fit.
+      * Here is alſo an excellent ſalve to cure any wound in a horſe or in a man, as Iverily ſuppoſe. et ſic fit.
 
 #####Back#####
-The honest and plaine dealing fa[r]rier or, A present remedy for curing diseases and hurts in horses
+
+1. Imprimatur
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
